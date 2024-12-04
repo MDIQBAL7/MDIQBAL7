@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **HTML & CSS**
 
-- 📫 How to reach me **iqbalhossain1@gmail.com**
+- 📫 How to reach me **iqbalhossainbn@gmail.com**
 
 - ⚡ Fun fact **I think I am funny**
 
